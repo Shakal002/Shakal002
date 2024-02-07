@@ -1,4 +1,4 @@
-### Hi dimas 👋
+### Hi white 👋
 Here are some ideas to get you started:
 - 🔭 I’m currently working on my first project in the college
 - 🌱 I’m currently learning 
